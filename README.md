@@ -1,2 +1,2 @@
-# Goodreads
-Meet your next favorite book.\n- Find and read more books you'll love, and keep track of the books you want to read. Be part of the world's largest community of book lovers on Goodreads.
+# Goodreads | Meet your next favorite book.
+Find and read more books you'll love, and keep track of the books you want to read. Be part of the world's largest community of book lovers on Goodreads.
