@@ -385,6 +385,6 @@ The 10 things you need to know: Who is the hero? Can you skip the boring bits? H
 ![Image](https://raw.githubusercontent.com/LibraryBook2020/Goodreads/master/ic_launcher/ic_launcher_38.png)  [**APK** Download link ](https://drive.google.com/file/d/1ieG5zHunWM_pp2d1amqNRhnAYT_PHnQY/view?usp=sharing)
 
 
-### **@@Xin trân trọng giới thiệu cùng bạn đọc.**
+### **@@I'm pleased to introduce readers.**
 
 
